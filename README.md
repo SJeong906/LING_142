@@ -1,1 +1,1 @@
-# LING_142
+# LING 142 - Linguistics and Thoughts
